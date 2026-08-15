@@ -1,0 +1,1 @@
+# samsungsdi.tr
